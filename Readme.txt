@@ -7,4 +7,4 @@ Note from Jack: LOLOLOLOLOL SO UNORIGINAL HAHAHA! :<
 
 Carlos : no cooldown moment
 
-IS ME TEL!!
+IM TEL!!

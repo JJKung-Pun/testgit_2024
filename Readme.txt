@@ -2,4 +2,7 @@ Cats
 Dogs
 Birds
 
-Carlos: no cooldown moment
+Note from Jack: LOLOLOLOLOL SO UNORIGINAL HAHAHA! :<
+
+
+Carlos : no cooldown moment
